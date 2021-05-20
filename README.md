@@ -1,3 +1,3 @@
-20170711 SongYongUk
+20170711     SongYongUk
 
 kookmin univ. SW
